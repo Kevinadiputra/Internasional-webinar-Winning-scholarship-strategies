@@ -1,10 +1,10 @@
-#Smartpath-Internasional webinar winning sholarship strategies#
+# Smartpath-Internasional webinar winning sholarship strategies#
 
 Pembicara: Anin
 
 **24 September 2023**
 
-##1. Jenis beasiswa##
+## 1. Jenis beasiswa##
 
 **Funding**
 
@@ -44,7 +44,7 @@ beasiswa non pendanaan: Mentoring Leadership Program.
 
 
 
-##2. Apa saja yang harus dipersiapkan?##
+## 2. Apa saja yang harus dipersiapkan?##
 
 **Tips kelengkapan administrasi**
 
