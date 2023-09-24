@@ -243,3 +243,38 @@ Gunakan metode FIRAC
 5.) Uniqeness
 
 6.) Yakin dan Tanpa Keraguan
+
+# umber daya dan platform yang berguna dalam mencari beasiswa
+
+1.) Intstagram Beasiswa
+
+2.) Website beasiswa
+
+3.) Website beasiswa kampus
+
+**Instagram**
+
+- @info_beasiswa
+
+- @lpdp_ri
+
+- @beasiswa.co
+
+- @infobeasiswa.official
+
+- @info.lomba.beasiswa
+
+- @beasiswa.unggulan.kemendikbud
+
+- @beasone.id
+
+- @beasiswa_kse
+
+- @beasiswaindonesiamaju
+
+- @beasiswaindo
+
+- @kejarmimpi.id
+
+- @genbi_official
+
