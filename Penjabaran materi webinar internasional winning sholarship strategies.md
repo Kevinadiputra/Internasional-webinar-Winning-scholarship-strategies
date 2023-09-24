@@ -244,7 +244,7 @@ Gunakan metode FIRAC
 
 6.) Yakin dan Tanpa Keraguan
 
-# umber daya dan platform yang berguna dalam mencari beasiswa
+# Sumber daya dan platform yang berguna dalam mencari beasiswa
 
 1.) Intstagram Beasiswa
 
