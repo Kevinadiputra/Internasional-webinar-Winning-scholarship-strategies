@@ -195,5 +195,3 @@ Use the FIRAC method:
 - @beasiswaindo
 - @kejarmimpi.id
 - @genbi_official
-
-Transform this content into a professional and comprehensive readme. This information is a detailed breakdown of a webinar presentation.
